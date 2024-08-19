@@ -59,7 +59,6 @@ Hubungan dengan orang lain memiliki pengaruh besar terhadap kualitas hidup kita.
 2. Saling Mendukung: Dukungan emosional dari orang-orang terdekat dapat memberikan kekuatan dalam menghadapi tantangan hidup. Pastikan Anda juga memberikan dukungan yang sama kepada mereka.
 3. Menghargai Perbedaan: Setiap orang memiliki pandangan dan pengalaman yang berbeda. Menghargai perbedaan ini dapat membantu membangun hubungan yang lebih harmonis dan saling menguntungkan.
 
-Kesimpulan
 Meningkatkan kualitas hidup sehari-hari adalah proses yang memerlukan kesadaran, usaha, dan komitmen. Dengan menjaga kesehatan fisik, mengelola stres, menciptakan lingkungan hidup yang sehat, dan membangun kebiasaan positif, kita dapat mencapai kesejahteraan yang lebih baik. Selain itu, menjaga keseimbangan antara pekerjaan dan kehidupan pribadi, menetapkan tujuan hidup yang jelas, dan menghargai waktu untuk diri sendiri serta membangun hubungan yang sehat adalah kunci untuk mencapai kehidupan yang lebih berkualitas. Lifestyle yang seimbang dan terencana dengan baik akan membawa kita menuju kehidupan yang lebih bahagia dan bermakna.
 
 
