@@ -41,20 +41,18 @@ Batasan Waktu Kerja: Tetapkan batasan waktu untuk bekerja dan pastikan Anda memi
 ## 6. Membuat Tujuan Hidup yang Jelas
 Tujuan hidup yang jelas memberikan arah dan makna dalam kehidupan kita. Tanpa tujuan, kita mungkin merasa kehilangan arah atau motivasi. Berikut adalah beberapa langkah untuk menetapkan tujuan hidup:
 
-Tentukan Prioritas: Identifikasi apa yang paling penting dalam hidup Anda, baik itu keluarga, karier, kesehatan, atau pengembangan diri. Setelah itu, buatlah rencana untuk mencapai tujuan tersebut.
+1. Tentukan Prioritas: Identifikasi apa yang paling penting dalam hidup Anda, baik itu keluarga, karier, kesehatan, atau pengembangan diri. Setelah itu, buatlah rencana untuk mencapai tujuan tersebut.
+2. Buat Tujuan SMART: Pastikan tujuan Anda bersifat Specific (spesifik), Measurable (terukur), Achievable (dapat dicapai), Relevant (relevan), dan Time-bound (berbatas waktu). Tujuan yang jelas dan realistis akan lebih mudah untuk dicapai.
+3. Evaluasi dan Sesuaikan: Secara berkala, evaluasi kemajuan Anda dan sesuaikan tujuan jika diperlukan. Fleksibilitas dalam menghadapi perubahan adalah kunci untuk mencapai keberhasilan.
 
-Buat Tujuan SMART: Pastikan tujuan Anda bersifat Specific (spesifik), Measurable (terukur), Achievable (dapat dicapai), Relevant (relevan), dan Time-bound (berbatas waktu). Tujuan yang jelas dan realistis akan lebih mudah untuk dicapai.
-
-Evaluasi dan Sesuaikan: Secara berkala, evaluasi kemajuan Anda dan sesuaikan tujuan jika diperlukan. Fleksibilitas dalam menghadapi perubahan adalah kunci untuk mencapai keberhasilan.
-
-7. Menghargai Waktu untuk Diri Sendiri
+## 7. Menghargai Waktu untuk Diri Sendiri
 Waktu untuk diri sendiri sering kali diabaikan dalam kehidupan yang sibuk. Padahal, meluangkan waktu untuk diri sendiri sangat penting untuk menjaga keseimbangan emosional dan mental:
 
 1. Me Time: Sisihkan waktu setiap hari untuk melakukan hal-hal yang Anda nikmati, seperti mendengarkan musik, menonton film, atau sekadar duduk dan menikmati secangkir teh. Waktu ini penting untuk merefleksikan diri dan mengisi kembali energi.
 2. Self-care: Perawatan diri bukan hanya tentang fisik, tetapi juga mental. Manjakan diri Anda dengan melakukan perawatan wajah, pijat, atau aktivitas relaksasi lainnya. Ini akan membuat Anda merasa lebih segar dan bahagia.
 3. Batasi Penggunaan Gadget: Terlalu banyak menghabiskan waktu di depan layar dapat membuat kita merasa lelah dan cemas. Batasi penggunaan gadget dan cobalah untuk lebih hadir dalam momen-momen kehidupan nyata.
 
-8. Membangun Hubungan yang Sehat
+## 8. Membangun Hubungan yang Sehat
 Hubungan dengan orang lain memiliki pengaruh besar terhadap kualitas hidup kita. Oleh karena itu, penting untuk membangun dan memelihara hubungan yang sehat:
 
 1. Komunikasi Terbuka: Komunikasi yang jujur dan terbuka adalah dasar dari hubungan yang sehat. Jangan takut untuk mengungkapkan perasaan atau pendapat Anda, tetapi juga dengarkan dengan empati ketika orang lain berbicara.
