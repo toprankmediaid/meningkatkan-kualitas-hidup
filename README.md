@@ -1,5 +1,8 @@
 # Cara Meningkatkan Kualitas Hidup Sehari-hari
 
+<img src="https://avatars.mds.yandex.net/i?id=cc133575b37c7c918b572c78f8d64c31_l-4593296-images-thumbs&n=13" alt="Cara Meningkatkan Kualitas Hidup Sehari-hari">
+
+
 Meningkatkan kualitas hidup sehari-hari merupakan tujuan yang diinginkan oleh banyak orang. Kualitas hidup yang baik tidak hanya diukur dari materi yang dimiliki, tetapi juga dari kesejahteraan fisik, mental, dan emosional. Dalam artikel ini, kami akan membahas berbagai cara untuk meningkatkan kualitas hidup sehari-hari dengan fokus pada aspek [lifestyle](https://toprankmedia.id/lifestyle/) yang seimbang dan berkelanjutan.
 
 ## 1. Menjaga Kesehatan Fisik
